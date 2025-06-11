@@ -17,6 +17,8 @@
 * **照明:** デスクライトなど、適切な明るさの照明は目の疲れを軽減します。
 * **セキュリティ:** ケンジントンロックがあるものを選ぶ
   * https://www.kensington.com/ja-jp/solutions/product-category/security/kensington-security-slot-specs/
+  * 社員証などの首から下げるもの
+    * リール式などの線が細いものはちぎれる。できるだけ丈夫で、100kg(標準的な人の重さとして想定している限界)吊るしてもちぎれないものにする。
 
 **あると便利なもの:**
 
