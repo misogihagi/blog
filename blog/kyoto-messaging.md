@@ -1,6 +1,6 @@
 # 京都ではよく見るなぜそうなったのかを示すチラシをあちこちに配置している良さ
 
-![DSC_5671](https://github.com/user-attachments/assets/34f12447-b02b-4001-b929-277e4268a22a)
+![ads in subway](https://github.com/user-attachments/assets/34f12447-b02b-4001-b929-277e4268a22a)
 
 
 
