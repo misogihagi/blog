@@ -48,3 +48,14 @@ https://king.mineo.jp/reports/301634
 楽天ペイの請求書払いがなくなったら、コンビニで払って、その時は
 セブンイレブンではnanacoが使えてミニストップではWAONが使えるから、それの還元率が高いやつを選ぶのかもしれない。
 
+
+## 追記
+
+昔はJAL PayからANA Pay,ANA Payからwaonがいけたらしいが今はできない。
+やろうとするとwaonにチャージするときにアプリで拒否されましたとでる。
+
+ANA Payを使いたかったら直接Edyへ。
+
+https://tomine-blog.net/mile-point/anapay-charge-and-use
+
+![ana pay usage](https://tomine-blog.net/wp-content/uploads/2023/11/anapay-rakutenpay-route.png)
