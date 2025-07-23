@@ -16,3 +16,32 @@
 * **責任範囲の不明確さ:** 肩書が多岐にわたりすぎると、それぞれの従業員の具体的な責任範囲や役割が曖昧になる可能性があります。これにより、業務の調整や評価が複雑になることも考えられます。
 * **企業文化との適合性:** この制度がその企業の文化と合致しているかが重要です。堅実な企業や伝統を重んじる業界では、導入が難しい場合もあります。
 * **制度の運用と管理:** あまりにも自由すぎると混乱を招く可能性があるため、ある程度のガイドラインや運用ルールが必要になるでしょう。例えば、公序良俗に反しないか、ビジネス上不適切ではないかなどの基準は必要かもしれません。
+
+
+1. Don't ask someone their salary, age, or weight.
+
+2. Let people exit before you
+
+3. Return what you borrow in enter. the same condition.
+
+4. Don't interrupt when someone is speaking.
+
+5. Don't use speakerphone in public.
+
+6. Respect personal space-physical and emotional.
+
+7. If someone is wearing headphones, they don't want to talk.
+
+8. Don't show up empty-handed to someone's home.
+
+9. Don't ask couples when they're having kids.
+
+10. Say "thank you" even for small gestures.
+
+11. Keep your phone away during meals.
+
+12. Don't make fun of someone's appearance.
+
+13. Don't stare-it's rude.
+
+14. Respect the "Do Not Disturb" sign-literally and figuratively.
