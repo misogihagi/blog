@@ -45,3 +45,72 @@
 13. Don't stare-it's rude.
 
 14. Respect the "Do Not Disturb" sign-literally and figuratively.
+
+
+𝐓𝐚𝐥𝐤𝐢𝐧𝐠 𝐭𝐨 𝐘𝐨𝐮𝐫𝐬𝐞𝐥𝐟
+
+- Ordinary People need a smart person to get approval for their problems.
+
+- Intelligent people hold meetings by talking to themselves. So they don't need anyone else.
+
+2) 𝐇𝐢𝐠𝐡 𝐒𝐞𝐧𝐬𝐞𝐬 𝐨𝐟 𝐇𝐮𝐦𝐨𝐫
+
+- They don't use the simple jokes we all know.
+
+- They can tell interesting and clever jokes that not everyone can understand.
+
+3) 𝐎𝐛𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧 𝐀𝐛𝐢𝐥𝐢𝐭𝐲
+
+- These people can analyze and observe very quickly.
+
+- I can give Sherlock Holmes as a high-level example of this.
+
+4) 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐅𝐫𝐨𝐦 𝐭𝐡𝐞 𝐏𝐚𝐬𝐭
+
+- They don't say things like "I wish I hadn't"
+
+- What's done is done and they just learn from it and move on
+
+5) 𝐎𝐩𝐞𝐧 𝐌𝐢𝐧𝐝𝐞𝐝
+
+- When someone tells something, they listen if they see value.
+
+- They aren't affected by manipulative speech or bad rhetoric.
+
+6) 𝐁𝐞𝐢𝐧𝐠 𝐀𝐧𝐭𝐢-𝐍𝐞𝐠𝐚𝐭𝐢𝐯𝐞
+
+- They don't have time to be negative.
+
+- Instead, they calculate bad possibilities in advance and
+
+proceed with a plan.
+
+7) 𝐓𝐡𝐞𝐲 𝐚𝐫𝐞 𝐃𝐞𝐭𝐞𝐫𝐦𝐢𝐧𝐞𝐝, 𝐧𝐨𝐭 𝐒𝐭𝐮𝐛𝐛𝐨𝐫𝐧
+
+- They don't get stupidly stubborn, they listen to you.
+
+- If they can't solve the problem through communication, they leave.
+
+8) 𝐊𝐧𝐨𝐰 𝐭𝐨 𝐁𝐞𝐢𝐧𝐠 𝐈𝐬𝐨𝐥𝐚𝐭𝐞𝐬
+
+- They often listen to music without words to become isolated.
+
+- This could be classical music, jazz, film music, etc.
+
+9) 𝐀𝐧𝐱𝐢𝐞𝐭𝐲 𝐌𝐚𝐧𝐚𝐠𝐞𝐦𝐞𝐧𝐭
+
+- Successful and intelligent people are a little anxious. But this is not at the level of a panic attack.YP
+
+- They make the right anxiety management.
+
+10) 𝐋𝐨𝐧𝐞𝐥𝐢𝐧𝐞𝐬𝐬
+
+- This loneliness isn't like depression. They stay alone to meet with themselves and think.
+
+11) 𝐀𝐝𝐝𝐢𝐜𝐭𝐢𝐨𝐧 𝐚𝐧𝐝 𝐂𝐨𝐥𝐥𝐞𝐜𝐭𝐢𝐧𝐠
+
+- They have at least one addiction or collection. These could also be bad dependencies or stupid collections.
+
+12) 𝐊𝐧𝐨𝐰𝐢𝐧𝐠 𝐇𝐨𝐰 𝐭𝐨 𝐑𝐞𝐚𝐝 𝐁𝐨𝐨𝐤𝐬
+
+- They get maximum efficiency by reading the sections of the books containing the information they need.
