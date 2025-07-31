@@ -45,3 +45,11 @@ The `cd` command changes the directory you're working with. In order to work wit
 The `npm run start` command builds your website locally and serves it through a development server, ready for you to view at http://localhost:3000/.
 
 Open `docs/intro.md` (this page) and edit some lines: the site **reloads automatically** and displays your changes.
+
+
+## どこで輝くのか
+
+https://note.com/kenta_saito0214/n/n3618336ed121
+
+50人くらいまでのベンチャー
+エース級なので創業もできるし、守備範囲が広いので目が届くし
