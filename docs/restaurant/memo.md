@@ -35,6 +35,10 @@ https://www.a-dining.com/view/item/000000001027
 休日でも直しに来てくれる。飲食店の辛みを共感してくれる。
 https://www.daiwa-teko.co.jp/
 
+## バウムクーヘンのOEM
+
+https://fdi-onebaum.com/oem/
+
 ## 持っておいたほうがいい資格
 
 日本酒検定
