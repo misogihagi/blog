@@ -39,6 +39,10 @@ https://www.daiwa-teko.co.jp/
 
 https://fdi-onebaum.com/oem/
 
+## ソフトクリームのコーン
+
+http://www.euroint.co.jp/pdf/conegelato.pdf
+
 ## 持っておいたほうがいい資格
 
 日本酒検定
