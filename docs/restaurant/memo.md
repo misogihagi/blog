@@ -12,6 +12,23 @@ http://www.showa-seito.co.jp/
 初山
 https://hatsuzan.co.jp/
 
+## コーヒーグラインダー
+
+LAGOM P64
+
+https://www.rdespressolab.com/products/optio-o-lagom-p64-unimodal-burr?srsltid=AfmBOoq-cp_4XI0MlH5HoiHmpPjm4A5L4I8wdMGZLDFy9CuZw9jxUSbz
+
+## コーヒーケトル
+
+Brewista
+https://brewista.jp/
+
+## コーヒードリッパー
+
+パラゴン
+
+https://www.a-dining.com/view/item/000000001027
+
 ##　焙煎機
 
 大和鉄鋼
