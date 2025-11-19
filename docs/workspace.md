@@ -248,3 +248,6 @@ SAS採用 BCB コンバットサバイバルキット
 
 サフィールのスタンダードセット
 https://store.shoeslife.jp/products/detail/2057
+
+コロンブス　大手量販店でも手に入りやすい
+https://www.columbus.co.jp/product_creating/shoecream/
