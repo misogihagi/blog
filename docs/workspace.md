@@ -243,3 +243,8 @@ https://www.moeco.jp.net/
 ## 非常設備
 
 SAS採用 BCB コンバットサバイバルキット
+
+## 靴磨き
+
+サフィールのスタンダードセット
+https://store.shoeslife.jp/products/detail/2057
