@@ -240,6 +240,16 @@ SDカードは使えない
 基盤アート
 https://www.moeco.jp.net/
 
+## 携帯
+
+### カードケース
+
+出したり閉まったり気持ちいい
+コンパクトなのでかさばらない
+magsafe版もあるけど分厚い
+
+https://www.webo-kobe.com/items/cardcase/secrid/cardholder.html
+
 ## 非常設備
 
 SAS採用 BCB コンバットサバイバルキット
