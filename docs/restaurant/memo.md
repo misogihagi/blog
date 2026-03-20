@@ -15,6 +15,12 @@ http://www.showa-seito.co.jp/
 初山
 https://hatsuzan.co.jp/
 
+ローゼンタール
+https://flohmarkt.thebase.in/categories/288975
+
+narumi
+https://item.fril.jp/819242a37d8127979db6b452bb20dbc7
+
 ## コーヒーグラインダー
 
 LAGOM P64
