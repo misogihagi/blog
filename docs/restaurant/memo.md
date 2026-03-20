@@ -56,6 +56,14 @@ https://fdi-onebaum.com/oem/
 
 http://www.euroint.co.jp/pdf/conegelato.pdf
 
+## スパイス
+
+インディアンプロビジョンストア
+https://www.spice-kobe.com/
+
+北野グロッサリー
+https://4travel.jp/dm_shisetsu/11333899
+
 ## 持っておいたほうがいい資格
 
 日本酒検定
