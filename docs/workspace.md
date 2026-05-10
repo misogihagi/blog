@@ -254,6 +254,11 @@ https://www.webo-kobe.com/items/cardcase/secrid/cardholder.html
 
 SAS採用 BCB コンバットサバイバルキット
 
+### 非常用、兼、ステーショナリー
+
+* マグネシウムの鉛筆削り
+サバイバル時や緊急時の火起こし材料（着火剤）として活用できる
+
 ## 靴磨き
 
 サフィールのスタンダードセット
